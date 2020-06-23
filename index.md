@@ -7,3 +7,8 @@ Charlie Brown (nicknamed Chuck by Peppermint Patty) is the principal fictional c
 * zigzag patterned shirt
 * like Baseball
 * frequently suffers
+
+## quote
+> Nichts auf der Welt raubt Erdnussbutter so sehr den Geschmack 
+> wie unerwiderte Liebe
+Gefunden auf: https://www.myzitate.de/charlie-brown/
