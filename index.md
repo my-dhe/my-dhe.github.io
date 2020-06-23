@@ -9,6 +9,6 @@ Charlie Brown (nicknamed Chuck by Peppermint Patty) is the principal fictional c
 * frequently suffers
 
 ## quote
+Gefunden auf: https://www.myzitate.de/charlie-brown/
 > Nichts auf der Welt raubt Erdnussbutter so sehr den Geschmack 
 > wie unerwiderte Liebe
-Gefunden auf: https://www.myzitate.de/charlie-brown/
